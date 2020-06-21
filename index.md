@@ -23,3 +23,7 @@ Robbins was criticized for critical comments made about the Me Too movement at a
 * NLP Trainer 
 * Autor
 * Wahnsinn
+
+Tony said:
+> Change your focus
+> Change your life.
