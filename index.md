@@ -15,3 +15,11 @@ In 2016, Robbins partnered with Golden State Warriors co-owner Peter Guber and W
 Robbins has worked on an individual basis with Bill Clinton, Justin Tuck, Wayne Gretzky, Serena Williams, Hugh Jackman, and Pitbull. He has also counseled American businessmen Peter Guber, Steve Wynn, and Marc Benioff. He was named one of the "Top 50 Business Intellectuals" by Accenture[30] and one of the "Top 200 Business Gurus" by the Harvard Business Press, and in 2007 was ranked on the Forbes Celebrity 100.
 
 Robbins was criticized for critical comments made about the Me Too movement at a seminar in San Jose, California, on March 15, 2018.[33] According to a video of the event released on social media by NowThisNews,[34] Robbins stated his opinion that, "If you use the #MeToo movement to try to get significance and certainty by attacking and destroying someone else… all you've done is basically use a drug called significance to make yourself feel good." He went on to tell a story about a "very powerful man" who passed on hiring a female candidate even though she was the most qualified because she was too attractive and would be "too big a risk".[33] Following criticism for these comments, Robbins posted an apology on his Facebook page, saying "I apologize for suggesting anything other than my profound admiration for the #MeToo movement."
+
+## Charakterliste TR:
+* Erfolgreich
+* Speaker 
+* Unternehmer
+* NLP Trainer 
+* Autor
+* Wahnsinn
