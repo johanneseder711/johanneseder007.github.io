@@ -27,3 +27,6 @@ Robbins was criticized for critical comments made about the Me Too movement at a
 Tony said:
 > Change your focus
 > Change your life.
+
+Hier noch ein Bild von Tony: 
+<img scr="https://victor-mochere.com/wp-content/uploads/2018/12/Tony-Robbins-Net-Worth.jpg">
